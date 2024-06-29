@@ -38,7 +38,8 @@ Thorvinn Armor | 40GP
 
 ## Treasures
 Kane's Coin
-
+One side is clean (Truth)
+At some point the coin was marked (with blood?) And it was magically cleaned.
 ## Auri Sorcer Points
 5/20 after the Goblin Wizard / Red Cap Battle
 
